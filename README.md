@@ -39,4 +39,4 @@
 
 ![python](https://tenor.com/view/do-not-run-python-python-computer-python-coding-coding-funny-coding-meme-gif-10365831290651691441.gif)
 
-# ✨ **Thanks for visitng me!** ⭐  
+# ✨ **Thanks for visiting me!** ⭐  
